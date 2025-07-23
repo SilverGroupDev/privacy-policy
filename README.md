@@ -1,4 +1,4 @@
-# Privacy Policy for Silver Japanese
+# Privacy Policy for Silver Japanese: Vocabulary
 
 **Last Updated:** [23/07/2025]
 
